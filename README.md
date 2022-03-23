@@ -1,3 +1,1 @@
-# jooyounglee
 
-Junior Data Analyst
